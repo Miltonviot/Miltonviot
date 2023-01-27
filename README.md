@@ -1,3 +1,7 @@
+
+![sharingan-itachi](https://user-images.githubusercontent.com/17603892/215076152-2c96d3f2-45b3-4028-be0c-c20e429e7fe6.gif)
+
+
 - 👋 Hi, I’m @Miltonviot
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
